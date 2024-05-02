@@ -12,7 +12,7 @@
 
 - 📝 I regularly write articles on [goriyanews.com](goriyanews.com)
 
-- 📫 How to reach me **ytsir@gmail.com**
+- 📫 How to reach me **ytsir47@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
